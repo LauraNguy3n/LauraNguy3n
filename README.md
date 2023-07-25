@@ -1,7 +1,7 @@
-### Hi there 
+### Hi there !
 ˖⁺‧₊˚🎧☁️🕶️ ˚₊‧⁺˖⛧🐈‍⬛₊˚ʚ ᗢ₊˚✧ ﾟ.
 
-
+<img src="https://github.com/LauraNguy3n/LauraNguy3n/assets/137196500/8bf1505c-98ec-4d5a-9167-826a1d82ffc8" height = "200" width = "200">
 
 
 
@@ -21,4 +21,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->⠀⠀⠀
 
-![Laura](https://github.com/LauraNguy3n/LauraNguy3n/assets/137196500/8bf1505c-98ec-4d5a-9167-826a1d82ffc8)
+<br> ⋆｡°✩☾⋆｡°✩⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆
