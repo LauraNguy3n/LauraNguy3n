@@ -22,3 +22,22 @@ Here are some ideas to get you started:
 -->⠀⠀⠀
 
 <br> ⋆｡°✩☾⋆｡°✩⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆
+
+Be yourself.<br>
+(_＼ヽ<br>
+　 ＼＼ .Λ＿Λ.<br>
+　　 ＼(　ˇωˇ)　<br>
+　　　 >　⌒ヽ<br>
+　　　/ 　 へ＼<br>
+　　 /　　/　＼＼<br>
+　　 ﾚ　ノ　　 ヽ_つ<br>
+　　/　/<br>
+　 /　/|<br>
+　(　(ヽ<br>
+　|　|、＼<br>
+　| 丿 ＼ ⌒)<br>
+　| |　　) /<br>
+`ノ ) 　 Lﾉ<br>
+(_／<br>
+
+⠀⠀⠀⠀
