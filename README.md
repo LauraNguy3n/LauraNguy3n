@@ -1,8 +1,8 @@
 ### Hi there !
 ˖⁺‧₊˚🎧☁️🕶️ ˚₊‧⁺˖⛧🐈‍⬛₊˚ʚ ᗢ₊˚✧ ﾟ.
 
-<img src="https://github.com/LauraNguy3n/LauraNguy3n/assets/137196500/8bf1505c-98ec-4d5a-9167-826a1d82ffc8" height = "200" width = "200">
 
+<img src = "https://i.pinimg.com/originals/cb/c4/6a/cbc46a79103c5597b7312874699c845d.png" height = "200" width = "200">
 
 
 
@@ -39,5 +39,5 @@ Be yourself.<br>
 　| |　　) /<br>
 `ノ ) 　 Lﾉ<br>
 (_／<br>
-
+<img src="https://github.com/LauraNguy3n/LauraNguy3n/assets/137196500/8bf1505c-98ec-4d5a-9167-826a1d82ffc8" height = "200" width = "200">
 ⠀⠀⠀⠀
